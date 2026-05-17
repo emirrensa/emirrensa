@@ -45,4 +45,4 @@
 
 ## 🔗 İletişim
 
-📧 **emirrensa@gmail.com** &nbsp;|&nbsp; 🌐 **Kastamonu, Türkiye**
+📧 **emirrensa@gmail.com** &nbsp;|&nbsp; 🌐 Kastamonu, Türkiye
